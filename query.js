@@ -59,8 +59,8 @@
     <li><a href="https://spinixa.com/" rel="nofollow">YOMANBET</a></li>
     <li><a href="https://spinixa.com/" rel="nofollow">JUDOL303</a></li>
     <li><a href="https://spinixa.com/" rel="nofollow">LINK303</a></li>
-    <li><a href="https://spinixa.com/" rel="nofollow">SLOT GACOR 777</a></li>
-    <li><a href="https://spinixa.com/" rel="nofollow">SLOT THAILAND</a></li>
+    <li><a href="https://spinixa.com/" rel="nofollow">SLOT-GACOR-777</a></li>
+    <li><a href="https://spinixa.com/" rel="nofollow">SLOT-THAILAND</a></li>
     <li><a href="https://spinixa.com/" rel="nofollow">JOS55</a></li>
     <li><a href="https://spinixa.com/" rel="nofollow">SODA88</a></li>
     <li><a href="https://spinixa.com/" rel="nofollow">SODA69</a></li>
@@ -70,4 +70,75 @@
     <li><a href="https://spinixa.com/" rel="nofollow">DEWA69</a></li>
     <li><a href="https://spinixa.com/" rel="nofollow">BOBA55</a></li>
     <li><a href="https://spinixa.com/" rel="nofollow">DADU55</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">RATUTOGEL</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">BET88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">MEGA888</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">INDOTOGEL</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">INDOLANG</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">MPO007</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SLOT777</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">CENDANABET</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">VOBBET</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">MOBILSLOT77</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">WINMEGABET</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">ARES77</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">OBSWIN</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">APPLE88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">BETSURGA</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">LAGAWIN</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">CB88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SONIX178</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">KAPALSLOT777</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">ONLINE138</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SIPSLOT88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">LOGINBET</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">TANGGASLOT</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">REMAJATOTO</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">PASTI138</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">CANDUPLAY88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">PUSPA88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">PELITASLOT</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">GURU138</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">KARTUGOL</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">GOBET09</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">LAJU138</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">MESINSLOT5000</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">TESLA303</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">YOYO33</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">MITRABET88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">HYDRO88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SLOTCR7</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">GEGEBET</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SULTAN33</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SULTAN88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">PRIMA777</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">CUAN55</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SOBAT55</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">PANEN55</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">UANG33</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SLOT777</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SLOT88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">RATUTOGEL</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">ALEXISTOTO</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">OLXTOTO</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">MAWARTOTO</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SPIN88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">KAPTEN89</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SPORTS369</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">HOKI188</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">DEWAGACOR</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">YOMANBET</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">JUDOL303</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">LINK303</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SLOT-GACOR-777</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SLOT-THAILAND</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">JOS55</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SODA88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">SODA69</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">GADING88</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">NEMO69</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">MIKO69</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">DEWA69</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">BOBA55</a></li>
+    <li><a href="https://pragmaticplay.co.in/" rel="nofollow">DADU55</a></li>
 </div>
