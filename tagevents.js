@@ -859,7 +859,7 @@ function requestForConversionApi (data) {
         data = btoa(JSON.stringify(data));
         console.log("hhhhhhhh",data);
         $.ajax({
-            url: 'https://www.'+domain+'/ubcommon/common/facebookevent', 
+            url: 'https://www.'+domain+'/gadingtoto', 
             type: 'GET',
             contentType: 'application/json',
             data: {"data":  data},
